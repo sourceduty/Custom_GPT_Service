@@ -18,6 +18,6 @@ Project-Based Pricing: Starting from $100 CAD
 
 Let's discuss your project today!
 
-Email: [sourceduty@gmail.com](mailto:sourceduty@gmail.com)
+[sourceduty@gmail.com](mailto:sourceduty@gmail.com)
 
 ***
