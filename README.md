@@ -10,6 +10,7 @@ Alex at Sourceduty, is dedicated to crafting cutting-edge solutions for you or y
 Every project is unique, and I offer competitive pricing based on factors such as complexity, data volume, and customization level.
 
 Hourly Rate: $50 - $100 CAD
+<br>
 Project-Based Pricing: Starting from $100 CAD
 
 #
